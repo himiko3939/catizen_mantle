@@ -4,7 +4,7 @@ THIS BOT IS FOR SALE
 
 contact me [Here](https://t.me/Nezuaoi)
 
-Feature :
+Feature 
 
 -auto merge
 
