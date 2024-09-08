@@ -4,6 +4,8 @@ THIS BOT IS FOR SALE
 
 contact me [Here](https://t.me/Nezuaoi)
 
+Min Cat lv 2 to run this sc
+
 Feature 
 
 -auto merge
